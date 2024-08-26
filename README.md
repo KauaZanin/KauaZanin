@@ -1,0 +1,7 @@
+-Olá, sou @KauaZanin
+- 👀 Estou interessado em Aprender
+- 🌱 Atualmente estou aprendendo JavaScript
+- 💞️ Procuro colaborar em Com meu professor
+- 📫 Como entrar em contato comigo pelo instagram  @PvdKZanin
+- 😄 Pronomes: Zanin
+- ⚡ Curiosidade: Sou loiro
